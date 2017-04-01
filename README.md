@@ -1,0 +1,1 @@
+# https-github.com-jjgod-mac-dictionary-kit
